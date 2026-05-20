@@ -1,1 +1,0 @@
-# neiroseti-dlya-pisatelei
